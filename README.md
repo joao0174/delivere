@@ -1,1 +1,1 @@
-# delivere
+# delivery
